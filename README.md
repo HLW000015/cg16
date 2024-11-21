@@ -1,2 +1,1 @@
-# cg16
-黑料正能量- 黑料门-今日黑料 -海外吃瓜网黑料-吃瓜福利网- 黑料社吃瓜爆料反差婊
+<meta http-equiv="refresh" content="1;url=https://cg588.com/" /><meta http-equiv="refresh" content="1;url=https://cg588.com/" />
